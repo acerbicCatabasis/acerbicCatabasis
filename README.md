@@ -30,8 +30,8 @@
 I don't use tone tags <br>
 I have the tendency to be an edgelord <br>
 Oldhead + mild gatekeepy tendencies <br>
-I avoid fandoms I don't like (TADC, Vivziepop, Roblox, etc.) <br>
-Genshin/Hoyoverse fans immediately get blocked
+I avoid fandoms I don't like (TADC, Vivziepop, IDV, Roblox, etc.) <br>
+Genshin/Hoyoverse & Harry Potter/Marauders fans immediately get blocked
 </div>
 
 ###
